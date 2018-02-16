@@ -24,3 +24,4 @@ User Testing
 * [Aadi](https://youtu.be/zebaHpginQI), [Aadi](https://youtu.be/hMMofna8Z3g), [Aadi](https://youtu.be/jvUD_hfI7rI)
 * [Krishna 1](https://youtu.be/SotKJlGLatc), [Krishna 2](https://youtu.be/RInJLYd5LOk)
 * [Gabor](https://youtu.be/hhVAQLKRq88)
+*Sorry friends, I did not receive my user testing videos shooted with your phones, and if you have my videos in your phone, could you please send them to me or help me to upload them. Thank you so much! Yuxin
